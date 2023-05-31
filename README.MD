@@ -1,1 +1,0 @@
-this is my first README STAY TUNED FOR MY NEW PROJECTS
